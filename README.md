@@ -1,2 +1,0 @@
-# tutorial
-cara cara
